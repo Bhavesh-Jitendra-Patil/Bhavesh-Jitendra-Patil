@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently Study IN JSPM College Pune<br>I'm looking to Get Inter In Microsoft<br>I love to do Coding<br>I love to Make or Working On interesting things<br>
+I'm currently Study IN JSPM College Pune<br>I love to do Coding<br>I love to Make or Working On interesting things<br>
 
 
 ## 🌐 Socials:
